@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @F1reH
+- 👀 I’m in Programming
